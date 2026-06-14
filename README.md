@@ -1,0 +1,1 @@
+# Stands---kermesse-Cellieu-26-juin-2026
